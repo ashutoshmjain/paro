@@ -1,0 +1,1 @@
+Dev is son of a poor person who lives in the same neighborhood and goes to the same school that Paro - the daughter of richest man arond. Dev was admitted to this schoold with a lottery to promote diversity in the school. There was no way he could afford this school while, Paro's mom was the trsutee of the school. 
